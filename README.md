@@ -7,3 +7,5 @@ estudiante de la tecnicatura en programacion
 i love 🍦 🍕 🐶
 
 i love ⭐ 📖 🌙
+
+i love 🎵 ☕ 💻
