@@ -9,3 +9,6 @@ i love 🍦 🍕 🐶
 i love ⭐ 📖 🌙
 
 i love 🎵 ☕ 💻
+
+Agrego algunas lineas
+actividad clase 11
